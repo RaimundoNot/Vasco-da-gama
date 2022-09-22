@@ -1,2 +1,0 @@
-# Vasco-da-gama
-repositorio
